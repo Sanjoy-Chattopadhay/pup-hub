@@ -1,1 +1,1 @@
-puphub- Adopt your dog here
+puppyhub- Adopt your dog here
